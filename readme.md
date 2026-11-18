@@ -1,1 +1,1 @@
-isna ainur
+isna ainur    .
